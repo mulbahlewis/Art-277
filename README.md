@@ -1,3 +1,3 @@
 # Art-277
 My first work 
-mulbahlewis.github.io./Assignment#1.html
+https://mulbahlewis.github.io/Art-277/Assignment#1.html
